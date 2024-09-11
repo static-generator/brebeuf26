@@ -1,2 +1,2 @@
 # brebeuf26
-# hello
+# mahirap ang mag-isa
